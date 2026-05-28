@@ -37,5 +37,5 @@ on Ecobank PLC.
 - Certificate of Internship — Thrive Africa Edutech (in progress)
 
 ## Contact
-- LinkedIn: [Your LinkedIn URL]
-- Email: [Your Email]
+- LinkedIn URL:www.linkedin.com/in/ebenezer-brookman-0866b2293
+- Email: Klamptey885@gmail.com
